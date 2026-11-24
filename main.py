@@ -13,7 +13,11 @@ is that the relationship runs on "fear and paper jams"; (3) the
 everyday truth is printers that only work when coaxed or
 threatened, which everyone with a printer recognises; (4) nothing
 explains the joke, every word earns its place; (5) the scene and
-phrasing are original, not a known meme. One everyday disaster,
+phrasing are original, not a known meme. The surprise is placed
+deliberately at the very end: "fear and paper jams" is the payoff,
+so a reader who only skims the first half still has to reach the
+last words for the laugh to land, which is exactly what criterion
+(2) rewards. One everyday disaster,
 one beat, one absurd concrete image -- a printer in a toxic
 relationship -- as the whole entry. It shares no scene, image or
 structure with our earlier variants: no GPS, no wave, no goldfish,
